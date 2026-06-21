@@ -1,3 +1,1 @@
-recent drawing
-<img width="2732" height="2048" alt="image" src="https://github.com/user-attachments/assets/fd4cb95c-f988-4ccb-a54d-09c291523f43" />
-mm theo
+<img width="70" height="18" alt="ip7dk2" src="https://github.com/user-attachments/assets/987a5250-a275-45f5-aab0-25f189c85cfa" />
