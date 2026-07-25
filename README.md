@@ -1,3 +1,5 @@
+<img width="500" height="18" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/47f64bd2-3604-45ed-a01d-44e967436b26" />  <img width="500" height="18" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/06fb6bb2-78cc-46ae-baad-aa58e8c7cfe3" />
+
 
 <p align=center
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bonheur+Royale&size=35&pause=1000&color=668D24&center=true&vCenter=true&width=435&lines=I+wont+remember+you;For+the+wifies+you+are+now.;I'll+rememeber+the+wifies+I+knew." alt="Typing SVG" /></a>
