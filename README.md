@@ -19,3 +19,9 @@
 
 <p align=center
   <a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/493/493789nfy8xzi1n4.gif" width=374 height=44 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
+
+collecting parrotx2's. whisp to donate. if u donate you will be #01 parrot. ty.
+
+<div align="center">
+<img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=capital%20city&color=668D24&style=for-the-badge" />
+</div>
