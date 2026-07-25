@@ -23,4 +23,23 @@
 </tr>
 </table>
 
+<table>
+<tr>
+
+<td width="50%" align="center">
+
+<img width="3464" height="3464" alt="Image 7-25-26 at 1 56 AM" src="https://github.com/user-attachments/assets/71f8cdf4-baaf-4cbd-bbbb-01afa5eee8e0" />
+
+
+</td>
+
+<td width="50%" align="center">
+
+<img width="1350" height="1600" alt="a" src="https://github.com/user-attachments/assets/ce7e26e5-99b9-4a81-998e-e491ee573517" />
+
+
+</td>
+
+</tr>
+</table>
 
