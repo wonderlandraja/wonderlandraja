@@ -20,8 +20,7 @@
 <p align=center
   <a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/493/493789nfy8xzi1n4.gif" width=374 height=44 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
 
-collecting parrotx2's. whisp to donate. if u donate you will be #01 parrot. ty.
-btw no rlly specific dni. just general criteria.
+many boundary breakers have been interacting with me recently, and i am at an uncomfortable stage and do not want to interact with strangers until i feel better about the whole situation. please do not cuddle with me unless you are a friend. idrc if we don't know much about eachother, you are free to cuddle as long as you are friended. interact with extreme care/caution if you do not know me.
 
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=capital%20city&color=668D24&style=for-the-badge" />
