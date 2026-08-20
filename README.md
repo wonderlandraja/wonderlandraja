@@ -1,3 +1,5 @@
+lwk who wanna gift me parots 🥺
+
 <p align=center
 <img width="480" height="20" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/47f64bd2-3604-45ed-a01d-44e967436b26" /> 
 <img width="480" height="20" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/06fb6bb2-78cc-46ae-baad-aa58e8c7cfe3" />
