@@ -26,3 +26,5 @@ iwc if idk u
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=capital%20city&color=668D24&style=for-the-badge" />
 </div>
+
+<img width="400" height="300" alt="Screenshot 2026-08-22 at 3 57 02 PM" src="https://github.com/user-attachments/assets/939f9635-1464-41f1-a7f9-8901f6d02078" />
