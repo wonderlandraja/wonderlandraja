@@ -1,5 +1,4 @@
-hey guys. i dont want to go on another week or two not talking to strangers or even cuddling with them bc of my boundaries again
-can we read my name b4 we cud.. if i dont have u friended and u c+h with dniuf, then i'll obviously get uncomfortable. yeah yeah theres debates on whether dniuf counts as c+h but i think we should just not be trying to be near ppl we dont know who has dniuid or dniuf..? ty pls dont break that boundary
+pls dont break my dni..... dni = dni. most likely to int is ONLY with gf or VERY close friends. dniuf+dniucf just regular. pls dont c+h if u break dniuf etc
 
 <p align=center
 <img width="480" height="20" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/47f64bd2-3604-45ed-a01d-44e967436b26" /> 
