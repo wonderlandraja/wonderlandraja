@@ -1,4 +1,4 @@
-lwk who wanna gift me parots 🥺
+I NEED WRITERS + REVISORS + STORY WRITERS/PACING SUGGESTORS FOR MY FIC ASAP! the chapter will be delayed immensly if not, and i am slowly losing motivation! pls feel free to whisper me 4 info!
 
 <p align=center
 <img width="480" height="20" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/47f64bd2-3604-45ed-a01d-44e967436b26" /> 
