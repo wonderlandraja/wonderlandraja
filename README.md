@@ -1,4 +1,4 @@
-pls dont break my dni..... dni = dni. most likely to int is ONLY with gf or VERY close friends. dniuf+dniucf just regular. pls dont c+h if u break dniuf etc
+pls dont break my dni..... dni = dni. most likely to int with is ONLY with gf or VERY close friends do not int first. dniuf+dniucf just regular. pls dont c+h if u break dniuf etc
 
 <p align=center
 <img width="480" height="20" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/47f64bd2-3604-45ed-a01d-44e967436b26" /> 
