@@ -1,6 +1,6 @@
 dont c+h if u break dniuf etc
 
-gifted parrot count: 3
+gifted parrot pony count: 4
 
 <p align=center
 <img width="480" height="20" alt="GZ3TES7TMR332ML7" src="https://github.com/user-attachments/assets/47f64bd2-3604-45ed-a01d-44e967436b26" /> 
