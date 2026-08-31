@@ -13,3 +13,7 @@ $${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \sp
 $${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
 $${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
 $${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
+
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=sins%20ive%20commited&color=000000&style=for-the-badge">
+</div>
