@@ -1,3 +1,5 @@
+ILL FINISH THIS SOON I PROMISE PLS
+
 $${\color{#ffffff}i \space \color{#ffd1e8}am \space \color{#ff8fc4}full \space \color{#ff4f9a}of \space \color{#ff007f}sorrow}$$
 
 
