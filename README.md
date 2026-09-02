@@ -1,6 +1,6 @@
 ILL FINISH THIS SOON I PROMISE PLS
 
-$${\color{#ffffff}i \space \color{#ffd1e8}am \space \color{#ff8fc4}full \space \color{#ff4f9a}of \space \color{#ff007f}sorrow}$$
+$${\color{#ffffff}i \space \color{#ffb7b2}am \space \color{#ff786e}full \space \color{#ff392e}of \space \color{#ff0000}hate }$$
 
 
 
@@ -11,10 +11,12 @@ $${\color{#ffffff}i \space \color{#ffd1e8}am \space \color{#ff8fc4}full \space \
 
 
 
-$${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
-$${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
-$${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
-$${\color{#ffffff}test \space \color{#ffc2df}test \space \color{#ff78b8}test \space \color{#ff2f92}test \space \color{#ff007}test }$$
+$${\color{#ffffff}i \space \color{#ffb7b2}keep \space \color{#ff786e}movin' \space \color{#ff392e} \space \color{#ff0000} }$$
+$${\color{#ffffff}i \space \color{#ffb7b2}keep \space \color{#ff786e}improvin' \space \color{#ff392e}\space \color{#ff0000} }$$
+$${\color{#ffffff}no \space \color{#ffb7b2}backin' \space \color{#ff786e}down \space \color{#ff392e}now \space \color{#ff0000}cuz }$$
+$${\color{#ffffff}i'll \space \color{#ffb7b2}never \space \color{#ff786e}say \space \color{#ff392e} \space \color{#ff0000} }$$
+$${\color{#ff0000}DIE. \space \color{#ffb7b2}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
+
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=sins%20ive%20commited&color=000000&style=for-the-badge">
