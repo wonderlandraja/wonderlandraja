@@ -7,7 +7,7 @@ $${\color{#ffffff}i \space \color{#ffb7b2}am \space \color{#ff786e}full \space \
 <p width="30%" align="right">
 
 
-<img width="400" height="450" alt="0828(4)" src="https://github.com/user-attachments/assets/3a73cbf2-fdf9-471b-900a-6a7925bdb3a0" style="mix-blend-mode: multiply;" align="right">
+<img width="400" height="430" alt="0828(4)" src="https://github.com/user-attachments/assets/3a73cbf2-fdf9-471b-900a-6a7925bdb3a0" style="mix-blend-mode: multiply;" align="right">
 
 
 
