@@ -29,7 +29,7 @@ $${\color{#ff0000}\text{nufuli}}$$
 $${\color{#ff0000}\text{kami}}$$
 <a href="https://github.com/winterabyssal/">✟  </a> </p>
 $${\color{#ff0000}\text{osity}}$$
-<a href="https://github.com/gerosityscapes/">✟  </a> </p>
+<a href="https://github.com/gerosityscrapes/">✟  </a> </p>
 $${\color{#ff0000}\text{four}}$$
 <a href="https://github.com/duowithme/">✟  </a> </p>
 $${\color{#ff0000}\text{summer}}$$
