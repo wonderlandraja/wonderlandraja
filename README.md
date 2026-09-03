@@ -1,4 +1,6 @@
-ILL FINISH THIS SOON I PROMISE PLS
+
+
+
 
 $${\color{#ffffff}sins \space \color{#ffb7b2}o'\space \color{#ff786e}plenty \space \color{#ff392e} \space \color{#ff0000} }$$
 
