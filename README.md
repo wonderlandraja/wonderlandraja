@@ -20,9 +20,15 @@ $${\color{#ffffff}i'll \space \color{#ffb7b2}never \space \color{#ff786e}say \sp
 $${\color{#ff0000}DIE. \space \color{#ffb7b2}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
 
 <details> 
-<summary> $${\color{#ff0000}free \space \color{#ff0000}food\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
+<summary> $${\color{#ff0000}qbm \space \color{#ff0000}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
  </summary>
- $${\color{#ff0000}tricked \space \color{#ff0000}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
+$${\color{#ff0000}\text{kuro}}$$ 
+<a href="https://github.com/leafdere/">✟  </a> </p>
+$${\color{#ff0000}\text{nufuli}}$$
+$${\color{#ff0000}\text{kami}}$$
+$${\color{#ff0000}\text{osity}}$$
+$${\color{#ff0000}\text{four}}$$
+$${\color{#ff0000}\text{summer}}$$
 </details>
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=sins%20ive%20commited&color=000000&style=for-the-badge">
