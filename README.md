@@ -18,8 +18,9 @@ $${\color{#ffffff}i'll \space \color{#ffb7b2}never \space \color{#ff786e}say \sp
 $${\color{#ff0000}DIE. \space \color{#ffb7b2}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
 
 <details> 
- <summary> free food! click me </summary>
-  loser
+<summary> $${\color{#ff0000}free \space \color{#ff0000}food\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
+ </summary>
+ $${\color{#ff0000}tricked \space \color{#ff0000}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
 </details>
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=sins%20ive%20commited&color=000000&style=for-the-badge">
