@@ -25,10 +25,15 @@ $${\color{#ff0000}DIE. \space \color{#ffb7b2}\space \color{#ff786e} \space \colo
 $${\color{#ff0000}\text{kuro}}$$ 
 <a href="https://github.com/leafdere/">✟  </a> </p>
 $${\color{#ff0000}\text{nufuli}}$$
+<a href="https://github.com/nightdayswish/">✟  </a> </p>
 $${\color{#ff0000}\text{kami}}$$
+<a href="https://github.com/winterabyssal/">✟  </a> </p>
 $${\color{#ff0000}\text{osity}}$$
+<a href="https://github.com/gerosityscapes/">✟  </a> </p>
 $${\color{#ff0000}\text{four}}$$
+<a href="https://github.com/duowithme/">✟  </a> </p>
 $${\color{#ff0000}\text{summer}}$$
+<a href="https://github.com/tricoIour/">✟  </a> </p>
 </details>
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=sins%20ive%20commited&color=000000&style=for-the-badge">
