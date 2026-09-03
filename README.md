@@ -1,8 +1,4 @@
-<img width="672" height="622" alt="Screenshot 2026-09-03 at 12 55 19 AM" src="https://github.com/user-attachments/assets/8fcdd8e4-b681-4cc8-b049-cb0777bbf077" />
 
-ok so i just seemingly got falsely reported??? im on mac and cant even hack myself because i am too afraid to get malware on my computer since my mum will literally kill me. the ONLY reason id get banned (NOT ip banned) was starting an argument. BUT THE PERSON I ARGUED WITH WAS FUCKING HOMOPHOBIC OFCOURSE IM GOING TO START AN ARGUMENT????? A MOD WAS LITERALLY IN THE CHAT
-im so fucking mad bro
-I DONT KNOW WHY IM IP BANNED OF ALL THINGS???? @Lapamauve FIX UR MODS AND AUTO MOD
 
 
 $${\color{#ffffff}sins \space \color{#ffb7b2}o'\space \color{#ff786e}plenty \space \color{#ff392e} \space \color{#ff0000} }$$
