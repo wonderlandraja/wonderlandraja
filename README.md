@@ -1,7 +1,7 @@
 
 
 
-$${\color{#ffffff}sins \space \color{#ffb7b2}o'\space \color{#ff786e}plenty \space \color{#ff392e} \space \color{#ff0000} }$$
+$${\color{#5e4161}remaking \space \color{#5e4161}soon\space \color{#5e4161} \space \color{#5e4161} \space \color{#5e4161} }$$
 
 
 
@@ -11,29 +11,24 @@ $${\color{#ffffff}sins \space \color{#ffb7b2}o'\space \color{#ff786e}plenty \spa
 <img width="400" height="430" alt="0828(4)" src="https://github.com/user-attachments/assets/3a73cbf2-fdf9-471b-900a-6a7925bdb3a0" style="mix-blend-mode: multiply;" align="right">
 
 
-
-$${\color{#ffffff}i \space \color{#ffb7b2}keep \space \color{#ff786e}movin' \space \color{#ff392e} \space \color{#ff0000} }$$
-$${\color{#ffffff}i \space \color{#ffb7b2}keep \space \color{#ff786e}improvin' \space \color{#ff392e}\space \color{#ff0000} }$$
-$${\color{#ffffff}no \space \color{#ffb7b2}backin' \space \color{#ff786e}down \space \color{#ff392e}now \space \color{#ff0000}cuz }$$
-$${\color{#ffffff}i'll \space \color{#ffb7b2}never \space \color{#ff786e}say \space \color{#ff392e} \space \color{#ff0000} }$$
-$${\color{#ff0000}DIE. \space \color{#ffb7b2}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
+$${\color{#5e4161}dni \space \color{#5e4161}under\space \color{#5e4161} 14 \space \color{#5e4161}unless \space \color{#5e4161} already \space \color{#5e4161} friends }$$
 
 <details> 
-<summary> $${\color{#ff0000}qbm \space \color{#ff0000}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
+<summary> $${\color{#5e4161}qbm \space \color{#ff0000}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
  </summary>
-$${\color{#ff0000}\text{kuro}}$$ 
+$${\color{#5e4161}\text{kuro}}$$ 
 <a href="https://github.com/leafdere/">✟  </a> </p>
-$${\color{#ff0000}\text{nufuli}}$$
+$${\color{#5e4161}\text{nufuli}}$$
 <a href="https://github.com/nightdayswish/">✟  </a> </p>
-$${\color{#ff0000}\text{kami}}$$
+$${\color{#5e4161}\text{kami}}$$
 <a href="https://github.com/winterabyssal/">✟  </a> </p>
-$${\color{#ff0000}\text{osity}}$$
+$${\color{#5e4161}\text{osity}}$$
 <a href="https://github.com/gereosityscrapes/">✟  </a> </p>
-$${\color{#ff0000}\text{four}}$$
+$${\color{#5e4161}\text{four}}$$
 <a href="https://github.com/duowithme/">✟  </a> </p>
-$${\color{#ff0000}\text{summer}}$$
+$${\color{#5e4161}\text{summer}}$$
 <a href="https://github.com/tricoIour/">✟  </a> </p>
 </details>
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=sins%20ive%20commited&color=000000&style=for-the-badge">
+  <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=my%20swaglings%20&color=5e4161&style=for-the-badge">
 </div>
