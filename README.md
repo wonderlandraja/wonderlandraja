@@ -21,15 +21,15 @@ $${\color{#5e4161}my \space \color{#5e4161}fandoms\space \color{#5e4161} and \sp
 $${\color{#5e4161}\text{kuro}}$$ 
 <a href="https://github.com/leafdere/">𓁹 𓁹</a> </p>
 $${\color{#5e4161}\text{nufuli}}$$
-<a href="https://github.com/nightdayswish/">𓁹 𓁹 </a> </p>
+<a href="https://github.com/nightdayswish/">𒅌</a> </p>
 $${\color{#5e4161}\text{kami}}$$
-<a href="https://github.com/winterabyssal/">𓁹 𓁹</a> </p>
+<a href="https://github.com/winterabyssal/">⏻</a> </p>
 $${\color{#5e4161}\text{osity}}$$
-<a href="https://github.com/gereosityscrapes/">𓁹 𓁹</a> </p>
+<a href="https://github.com/gereosityscrapes/">☣︎</a> </p>
 $${\color{#5e4161}\text{four}}$$
-<a href="https://github.com/duowithme/">𓁹 𓁹</a> </p>
+<a href="https://github.com/duowithme/">� </a> </p>
 $${\color{#5e4161}\text{summer}}$$
-<a href="https://github.com/tricoIour/">𓁹 𓁹</a> </p>
+<a href="https://github.com/tricoIour/">𖦹</a> </p>
 </details>
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=my%20swaglings%20&color=5e4161&style=for-the-badge">
