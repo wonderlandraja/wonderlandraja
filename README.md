@@ -36,5 +36,5 @@ $${\color{#5e4161}\text{summer}}$$
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=my%20swaglings%20&color=5e4161&style=for-the-badge">
 </div>
 
-<img width="400" height="150" alt="dzrr90" src="https://github.com/user-attachments/assets/3ce714bb-cd63-4629-a778-0eba7cc8644c" />
+<img width="400" height="100" alt="dzrr90" src="https://github.com/user-attachments/assets/3ce714bb-cd63-4629-a778-0eba7cc8644c" />
 
