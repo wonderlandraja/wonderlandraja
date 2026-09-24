@@ -1,18 +1,14 @@
 
 
 
-$${\color{#5e4161}adding \space \color{#5e4161}more\space \color{#5e4161} soon\space \color{#5e4161} \space \color{#5e4161} }$$
+$${\color{#5e4161}wip \space \color{#5e4161}\space \color{#5e4161} \space \color{#5e4161} \space \color{#5e4161} }$$
 
 
 
 <p width="30%" align="right">
 
 
-<img width="400" height="430" alt="0828(4)" alt="14049783_2ad4f" src="https://github.com/user-attachments/assets/cc915797-eb99-48c4-82f7-7dc319138b03" style="mix-blend-mode: multiply;" align="right">
-
-
-
-
+<img width="400" height="430" alt="0828(4)" alt="14052204_91eba" src="https://github.com/user-attachments/assets/0a2b17e5-90c9-4e6e-b6c6-b236c2372fcc" style="mix-blend-mode: multiply;" align="right">
 
 $${\color{#5e4161}dni \space \color{#5e4161}under\space \color{#5e4161} 14 \space \color{#5e4161}unless \space \color{#5e4161} already \space \color{#5e4161} friends }$$
 $${\color{#5e4161}my \space \color{#5e4161}fandoms\space \color{#5e4161} and \space \color{#5e4161}kins \space \color{#5e4161} change \space \color{#5e4161} a \space \color{#5e4161} lot.} $$
@@ -39,3 +35,6 @@ $${\color{#5e4161}\text{summer}}$$
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=wonderlandraja&label=my%20swaglings%20&color=5e4161&style=for-the-badge">
 </div>
+
+<img width="600" height="150" alt="dzrr90" src="https://github.com/user-attachments/assets/3ce714bb-cd63-4629-a778-0eba7cc8644c" />
+
