@@ -16,8 +16,10 @@ $${\color{#5e4161}remaking \space \color{#5e4161}soon\space \color{#5e4161} \spa
 
 $${\color{#5e4161}dni \space \color{#5e4161}under\space \color{#5e4161} 14 \space \color{#5e4161}unless \space \color{#5e4161} already \space \color{#5e4161} friends }$$
 $${\color{#5e4161}my \space \color{#5e4161}fandoms\space \color{#5e4161} and \space \color{#5e4161}kins \space \color{#5e4161} change \space \color{#5e4161} a \space \color{#5e4161} lot.} $$
-
-
+$${\color{#5e4161}byi... \space \color{#5e4161}please\space \color{#5e4161}know \space \color{#5e4161}i \space \color{#5e4161} can \space \color{#5e4161}be... \space \color{#5e4161} } $$
+$${\color{#5e4161}rude,\space \color{#5e4161}weird,\space \color{#5e4161}narccisistic,\space \color{#5e4161}and \space \color{#5e4161} needy.\space \color{#5e4161} \space \color{#5e4161} } $$
+$${\color{#5e4161}its\space \color{#5e4161}something\space \color{#5e4161}i \space \color{#5e4161}cant\space \color{#5e4161}control. \space \color{#5e4161} \space \color{#5e4161}} $$
+$${\color{#5e4161}so\space \color{#5e4161}lmk\space \color{#5e4161}when\space \color{#5e4161}i\space \color{#5e4161}do\space \color{#5e4161} such.\space \color{#5e4161}} $$
 <details> 
 <summary> $${\color{#5e4161}qbm \space \color{#ff0000}\space \color{#ff786e} \space \color{#ff392e} \space \color{#ff0000} }$$
  </summary>
