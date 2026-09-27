@@ -1,9 +1,6 @@
 
 
 
-$${\color{#5e4161}call\space \color{#5e4161}me\space \color{#5e4161}miles,\space \color{#5e4161}wonder,\space \color{#5e4161}raja,\space \color{#5e4161} or\space \color{#5e4161}a \space \color{#5e4161} character \space \color{#5e4161}i \space \color{#5e4161} kin. } $$
-
-
 
 <p width="30%" align="right">
 
