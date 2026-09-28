@@ -9,6 +9,8 @@ img width="400" height="430" alt="0828(4)" img here style="mix-blend-mode: multi
 
 $${\color{#66553a}n1 \space \color{#66553a}jaron\space \color{#66553a}fan\space \color{#66553a} \space \color{#66553a} \space \color{#66553a}  }$$
 
+$${\color{#66553a}\text{hi}}$$ 
+<a href=" ">text here</a> </p>
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=tranquilified&label=%20my%20pawns&color=66553a&style=for-the-badge">
